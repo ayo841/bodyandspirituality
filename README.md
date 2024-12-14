@@ -48,7 +48,7 @@ Fudgé, Thomas A. “Surviving the Middle Ages: The Extraordinary Pursuit of 
 
 Fuller, Robert. "Religion and the Body." *Oxford Research Encyclopedia of Religion*. 2 Mar. 2015; Accessed 22 Nov. 2024. https://oxfordrecom.uml.idm.oclc.org/religion/view/10.1093/acrefore/9780199340378.001.0001/acrefore-9780199340378-e-18
 
-Frenzeny, Jules Tavernier and Paul. "Native American Sun Dance." *World History Encyclopedia*.Last modified August 25, 2023. https://www.worldhistory.org/image/17823/native-american-sun-dance/. 
+Schuon, Frithjof. "Apparition of the Buffalo Calf Maiden." *World History Encyclopedia*. Last modified September 07, 2023. https://www.worldhistory.org/image/17890/apparition-of-the-buffalo-calf-maiden/.
 
 Spearing, Elizabeth. Medieval Writings on Female Spirituality. New York: Penguin Books, 2002.
 
