@@ -35,14 +35,26 @@ Both medieval Christian and Indigenous traditions viewed the body, particularly 
 
 ## Bibliography
 Archambault, JoAllyn, and Alice Beck Kehoe. “Women’s Power to Give: Their Central Role in Northern Plains First Nations.” *In Women, Religion, and the Gift: An Abundance of Riches*, edited by Morny Joy, 103–14. Cham: Springer International Publishing, 2017.
+
 Corran, Emily, Morgan Clarke, Emily Corran, Emily Corran, and Morgan Clarke. “Control of the Self and the Casuistry of Vows: Christian Personal Conscience and Clerical Intervention in the Twelfth and Thirteenth Centuries.” In Rules and Ethics, 80–100. Manchester: Manchester University Press, 2021. doi:10.7765/9781526148919.00010.
+
 Caroline Walker Bynum. Holy Feast and Holy Fast. University of California Press, 1988.
+
 Frenzeny, Jules Tavernier and Paul. "Native American Sun Dance." *World History Encyclopedia*. Last modified August 25, 2023. https://www.worldhistory.org/image/17823/native-american-sun-dance/. 
+
 Fudgé, Thomas A. “Surviving the Middle Ages: The Extraordinary Pursuit of Salvation.” In Medieval Religion and Its Anxieties, 229–52. United States: Palgrave Macmillan, 2016. doi:10.1057/978-1-137-56610-2_9.
+
 Fuller, Robert. "Religion and the Body." *Oxford Research Encyclopedia of Religion*. 2 Mar. 2015; Accessed 22 Nov. 2024. https://oxfordrecom.uml.idm.oclc.org/religion/view/10.1093/acrefore/9780199340378.001.0001/acrefore-9780199340378-e-18
+
 Frenzeny, Jules Tavernier and Paul. "Native American Sun Dance." *World History Encyclopedia*.Last modified August 25, 2023. https://www.worldhistory.org/image/17823/native-american-sun-dance/. 
+
 Denise K. Lajimodiere. “Ogimah Ikwe: Native Women and Their Path to Leadership.” Wicazo Sa Review 26, no. 2 (2011): 57–82. https://doi.org/10.5749/wicazosareview.26.2.0057.
+
 Spearing, Elizabeth. Medieval Writings on Female Spirituality. New York: Penguin Books, 2002.
+
 Tracy, Kisha G., and Alicia Protze. “Life of Mary of Oegines (Oignies) (ca. 15th c.).” *In MedievalDisability Sourcebook: Western Europe*, edited by Cameron Hunt McNabb, 220–30. Punctum Books, 2020. https://doi.org/10.2307/j.ctv11hptcd.22.
+
 Talamantez, Inés M. “Dance and Ritual in the Study of Native American Religious Traditions.” *American Indian Quarterly* 6, no. 3/4 (1982): 338–57. https://doi.org/10.2307/1183646.
+
 MACMILLAN, SARAH. “IMITATION, INTERPRETATION, AND ASCETIC IMPULSE IN MEDIEVAL ENGLISH DEVOTIONAL CULTURE.” *Medium Ævum* 86, no. 1 (2017): 38–59. https://doi.org/10.2307/26396497.
+
